@@ -1,4 +1,4 @@
-### Hi there 👋
+## Life is a leaf of paper white, thereon each of us may write his word or two.  👋
 
 <!--
 **cc654586411s/cc654586411s** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
